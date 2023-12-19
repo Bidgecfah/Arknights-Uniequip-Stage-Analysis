@@ -18,3 +18,5 @@ ArknightsGameData https://github.com/Kengxxiao/ArknightsGameData
 QQ群：罗德岛-教捐位面 群号：984588903
 
 Bilibili：https://space.bilibili.com/2268014
+
+![Uploading image.png…]()

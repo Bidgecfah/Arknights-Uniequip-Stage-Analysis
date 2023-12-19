@@ -19,4 +19,4 @@ QQ群：罗德岛-教捐位面 群号：984588903
 
 Bilibili：https://space.bilibili.com/2268014
 
-![Uploading image.png…]()
+![image](https://github.com/Bidgecfah/Arknights-Uniequip-Stage-Analysis/assets/112526130/792f3142-880b-4777-8007-c60cef50e929)
